@@ -2,4 +2,4 @@
 
 Please visit 
 https://dune.com/lordachita/lordachita-airdrop-3
-to see eligible.
+to see eligible address.
